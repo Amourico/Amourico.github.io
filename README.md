@@ -1,1 +1,0 @@
-Omar El-Serafi Blog 
